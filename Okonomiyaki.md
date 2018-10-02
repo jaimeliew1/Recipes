@@ -17,11 +17,13 @@ Ingredients
 
 -   3/4 - 1 cup all-purpose flour
 
--   ?? diced cabbage
+-   a quarter cabbage, diced
 
--   ?? shredded carrots
+-   ~1 shredded carrots
 
--   ?? diced green onions
+-   3 diced green onions
+
+-   teaspoon diced Ginger
 
 -   Bacon strips
 
